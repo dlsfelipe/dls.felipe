@@ -5,7 +5,9 @@ esse é meu projeto https://scratch.mit.edu/projects/856617158
 
 este é um projeto de apenas 2 horas 
 
-
+no futuro pretendo fazer mais projetos 
+qualquer duvida entre em contato pelo Instagram
+@dls.felipe
 
 
 
